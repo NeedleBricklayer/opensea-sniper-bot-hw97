@@ -1,4 +1,4 @@
-# 
+# Enhance your NFT trading with custom opensea sniper bot | multi-chain-support + auto-sell, the #1 opensea sniper bot. Includes multi-chain-support and auto-sell for a faster and
 
 
 
